@@ -35,7 +35,7 @@ interests/fandoms:
 
 - no, im not a human
 
-etc...
+ //etc...
 
 .. not many i know... but i have other animes i like too! you can mention other fandoms and i mightve heard of them!
 
@@ -54,4 +54,4 @@ old interests/fandoms i left:
 
 . . .
 
-, also special thanks to dandys world. im not in the fandom but i really like the game!
+, also special thanks to dandys world. im not in the fandom but the game is fun
