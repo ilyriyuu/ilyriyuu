@@ -54,4 +54,4 @@ old interests/fandoms i left:
 
 . . .
 
-, also special thanks to dandys world. im not in the fandom but i really like the game!
+, also special thanks to dandys world. im not in the fandom but the game is pretty fun
