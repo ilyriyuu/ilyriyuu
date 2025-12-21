@@ -23,6 +23,8 @@ interests/fandoms:
 
 - Forsaken
 
+- die of death
+
 - Regretevator
 
 - BSD
