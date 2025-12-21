@@ -29,7 +29,7 @@ interests/fandoms:
 
 - BSD
 
-- Mminesweeperplus
+- Minesweeperplus
 
 - 17bucks
 
