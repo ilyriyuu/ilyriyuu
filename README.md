@@ -33,6 +33,8 @@ interests/fandoms:
 
 - 17bucks
 
+- bad things
+
 - no, im not a human
 
 //etc...
