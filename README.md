@@ -16,7 +16,7 @@ i will unfriend you if you've been offline for 100+ days
 
 i can hide quite frequently. usually when someone is rude or has a weird skin.
 
-i have ships, but i dont focus on them (and probably never will). im also amultishipper, but i still have ships i dont like.
+i have ships, but i dont focus on them (and probably never will). im also a multishipper, but i still have ships i dont like.
 
 
 interests/fandoms:
