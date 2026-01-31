@@ -2,9 +2,9 @@
 
 ^_^
 
-roblox acc: ilyriyuu0. add me if u want😋
+roblox acc: ilyriyuu0. add me if u want
 
-if u have the same interests as me then int! even one interest works, usually so we can have something to yap about. my old interests also work! aka fandoms im not in anymore. but i probably wont say a lot about them. i would also recommend if you start the conversation and talk more so i can get used to you (im shy ok.)
+if u have the same interests as me then int feely. even one interest works, usually so we can have something to yap about. my old interests also work. aka fandoms im not in anymore. but i probably wont say a lot about them. i would also recommend if you start the conversation and talk more so i can get used to you (im shy ok.)
 
 sometimes i have some sort of dni in my name, that usually means that im not in the best mood. i wont be rude if you int, ill just be dry and boring. hell i might not even respond.
 
@@ -39,7 +39,7 @@ interests/fandoms:
 
 //etc...
 
-.. not many i know... but i have other animes i like too! you can mention other fandoms and i mightve heard of them!
+.. not many i know... but i have other animes i like too! you can mention other fandoms and i mightve heard of them,,
 
 
 old interests/fandoms i left:
