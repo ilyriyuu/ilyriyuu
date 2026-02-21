@@ -8,7 +8,7 @@ if u have the same interests as me then int feely. even one interest works, usua
 
 sometimes i have some sort of dni in my name, that usually means that im not in the best mood. i wont be rude if you int, ill just be dry and boring. hell i might not even respond.
 
-i am an ivan (bad things) fictionkin. tho i HAVE become a better person, i was way defferent like 2 years ago at least. i can still be toxic (or appear to be) so iwc anyway.
+iwc. i can be toxic, and i don't want to hurt anyone's feelings if they're sensitive. sometimes i might joke about a sensitive topic as well
 
 i dont have a dni list. not yet at least
 
