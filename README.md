@@ -2,7 +2,7 @@
 
 ^_^
 
-roblox acc: ilyriyuu0. add me if u want
+roblox acc: ilyriyuu0
 
 if u have the same interests as me then int feely. even one interest works, usually so we can have something to yap about. my old interests also work. aka fandoms im not in anymore. but i probably wont say a lot about them. i would also recommend if you start the conversation and talk more so i can get used to you (im shy ok.)
 
