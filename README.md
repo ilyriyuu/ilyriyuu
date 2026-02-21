@@ -21,6 +21,8 @@ i have ships, but i dont focus on them (and probably never will). im also a mult
 
 interests/fandoms:
 
+- Bad Things
+
 - Forsaken
 
 - die of death
@@ -29,13 +31,9 @@ interests/fandoms:
 
 - BSD
 
-- Minesweeperplus
-
 - 17bucks
 
-- bad things
-
-- no, im not a human
+- crk
 
 //etc...
 
