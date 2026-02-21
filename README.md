@@ -8,9 +8,9 @@ if u have the same interests as me then you can int. even one interest works, us
 
 sometimes i have some sort of dni in my name, that usually means that im not in the best mood. i wont be rude if you int, ill just be dry and boring. hell i might not even respond.
 
-iwc. i can be toxic, and i don't want to hurt anyone's feelings if they're sensitive. sometimes i might joke about a sensitive topic as well
+iwc. i can be toxic, and i don't want to hurt anyone's feelings if they're sensitive. sometimes i might joke about a sensitive topic as well and im sorry if that offends you or triggers you in any way
 
-sensitive people dni thats mostly it,
+sensitive people dni, as stated in my bio. no ACTUAL dni list yet
 
 i will unfriend you if you've been offline for 100+ days
 
