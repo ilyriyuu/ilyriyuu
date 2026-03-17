@@ -1,14 +1,14 @@
 ## hi .
 
-might change this when i feel like it/
-
 ^_^
 
 roblox acc: ilyriyuu0
 
-if u have the same interests as me then you can int. even one interest works, usually so we can have something to yap about. my old interests also work. aka fandoms im not in anymore. but i probably wont say a lot about them. i would also recommend if you start the conversation and talk more so i can get used to you
+i really dont feel like making a strawpage or anything like that,, or even decorating my github. this will be just a simple introduction
 
-sometimes i have some sort of dni in my name, that usually means that im not in the best mood. i wont be rude if you int, ill just be dry and boring. hell i might not even respond.
+you can call me sev, i go by any pronouns, it really doesn't matter what you call me.
+
+im chill i promise guys feel free to int when i dont have any sort of dni in my name
 
 iwc. i can be toxic, and i don't want to hurt anyone's feelings if they're sensitive. sometimes i might joke about a sensitive topic as well and im sorry if that offends you or triggers you in any way
 
@@ -16,9 +16,9 @@ sensitive people dni, as stated in my bio. no ACTUAL dni list yet
 
 i will unfriend you if you've been offline for 100+ days
 
-i can hide quite frequently. usually when someone is rude or has a weird skin.
+im very sorry if i appear as rude, as i said im mostly nice BUT i can be rude sometimes when im in a bad mood. IWC
 
-i have ships, but i dont focus on them (and probably never will). im also a multishipper, but i still have ships i dont like.
+i block/hide quite frequently
 
 
 interests/fandoms:
@@ -44,18 +44,6 @@ interests/fandoms:
 .. not many i know... but i have other roblox games i like too. you can mention other fandoms and i mightve heard of them,,
 
 
-old interests/fandoms i left:
+i had old fandoms here too but i removed it cause i thought it was stupid,,
 
-- countryhumans
-
-- countryballs
-
-- BATIM/BATDR
-
-- sally face
-
-, again not that many. i never really joined fandoms, cause i knew id lose interest in them soon.
-
-. . .
-
-, also special thanks to dandys world. im not in the fandom but the game is pretty fun
+o_O
