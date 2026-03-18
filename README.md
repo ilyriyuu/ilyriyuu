@@ -10,7 +10,7 @@ you can call me sev, i go by any pronouns, it really doesn't matter what you cal
 
 im chill i promise guys feel free to int when i dont have any sort of dni in my name
 
-iwc. i can be toxic, and i don't want to hurt anyone's feelings if they're sensitive. sometimes i might joke about a sensitive topic as well and im sorry if that offends you or triggers you in any way
+I don't want to hurt anyone's feelings if they're sensitive. sometimes i might joke about a sensitive topic as well and im sorry if that offends you or triggers you in any way
 
 sensitive people dni, as stated in my bio. no ACTUAL dni list yet
 
