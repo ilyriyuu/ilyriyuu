@@ -41,8 +41,6 @@ interests/fandoms:
 
 - 17bucks
 
-- crk
-
 //etc...
 
 .. not many i know... but i have other roblox games i like too. you can mention other fandoms and i mightve heard of them,,
