@@ -48,4 +48,4 @@ interests/fandoms:
 
 i had old fandoms here too but i removed it cause i thought it was stupid,,
 
-o_O
+X_X
