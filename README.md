@@ -14,8 +14,6 @@ I don't want to hurt anyone's feelings if they're sensitive. sometimes i might j
 
 sensitive people dni, as stated in my bio. no ACTUAL dni list yet
 
-i will unfriend you if you've been offline for 100+ days
-
 im very sorry if i appear as rude, as i said im mostly nice BUT i can be rude sometimes when im in a bad mood. IWC
 
 i block/hide quite frequently
@@ -25,29 +23,22 @@ interests/fandoms:
 
 - Bad Things
 
-- hwwhp/^_^
-
 - Forsaken
 
 - die of death
 
-- Regretevator
-
 - BSD
+
+- hetalia
 
 - grace
 
 - roblox in general*
 
-- 17bucks
-
-- hetalia
-
-//etc...
+//etc... there's more fandoms i'm in, i just feel like that they're not necessary to add in
 
 .. not many i know... but i have other roblox games i like too. you can mention other fandoms and i mightve heard of them,,
 
 
-i had old fandoms here too but i removed it cause i thought it was stupid,,
 
 X_X
