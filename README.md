@@ -18,6 +18,8 @@ im very sorry if i appear as rude, as i said im mostly nice BUT i can be rude so
 
 i block/hide quite frequently
 
+i like minesweeper a lot,,
+
 
 interests/fandoms:
 
