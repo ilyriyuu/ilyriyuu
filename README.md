@@ -37,7 +37,7 @@ interests/fandoms:
 
 //etc... there's more fandoms i'm in, i just feel like that they're not necessary to add in
 
-.. not many i know... but i have other roblox games i like too. you can mention other fandoms and i mightve heard of them,,
+.. i have other roblox games i like too. you can mention other fandoms and i might've heard of them,
 
 
 
