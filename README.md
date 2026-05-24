@@ -2,8 +2,6 @@
 
 ^_^
 
-roblox acc: ilyriyuu0
-
 i really dont feel like making a strawpage or anything like that,, or even decorating my github. this will be just a simple introduction
 
 you can call me sev, i go by any pronouns, it really doesn't matter what you call me.
