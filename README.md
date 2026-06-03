@@ -27,13 +27,13 @@ interests/fandoms:
 
 - die of death
 
-- BSD
-
-- hetalia
-
 - grace
 
 - roblox in general*
+
+- hetalia
+
+- BSD
 
 //etc... there's more fandoms i'm in, i just feel like that they're not necessary to add in
 
