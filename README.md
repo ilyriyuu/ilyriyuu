@@ -8,8 +8,8 @@ $\color{#d4b79d}{\textsf{any pronouns - it really doesn't matter what you call m
 
 $\color{#d4b79d}{\textsf{i'm usually a nice person , but when i'm in a bad mood i can be a bit rude , sorry about that}}$ <img align="right" width="228" height="650" src="https://github.com/user-attachments/assets/bff70024-4c39-4127-9568-771657df7f27" />
 
-$\color{#d4b79d}{\textsf{I don't want to hurt anyone's feelings if they're sensitive . sometimes i might joke about a sensitive topic}}$
-$\color{#d4b79d}{\textsf{and i'm sorry if that offends you or triggers you in any way}}$
+$\color{#d4b79d}{\textsf{I don't want to hurt anyone's feelings if they're sensitive . sometimes i might joke about}}$
+$\color{#d4b79d}{\textsf{a sensitive topic and i'm sorry if that offends you or triggers you in any way}}$
 
 $\color{#d4b79d}{\textsf{Feel free to int when i don't have any sort of dni in my name}}$
 
