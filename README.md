@@ -19,7 +19,8 @@ $\color{#d4b79d}{\textsf{! ! IWC always ! !}}$
 
 $\color{#d4b79d}{\textsf{.}}$
 
-$\color{#d4b79d}{\textsf{i also like keeping most things simple , i decided to decorate my github mainly so it was actually nice to look at}}$
+$\color{#d4b79d}{\textsf{i also like keeping most things simple ,}}$
+$\color{#d4b79d}{\textsf{i decided to decorate my github mainly so it was actually nice to look at}}$
 
 $\color{#d4b79d}{\textsf{. . .}}$
 
