@@ -6,7 +6,7 @@ $\color{#d4b79d}{\textsf{hi , i'm sev .}}$
 
 $\color{#d4b79d}{\textsf{any pronouns - it really doesn't matter what you call me .}}$ 
 
-$\color{#d4b79d}{\textsf{i'm usually a nice person , but when i'm in a bad mood i can be a bit rude , sorry about that}}$ <img align="right" width="228" height="600" alt="image" src="https://github.com/user-attachments/assets/c9c66119-de14-4e94-8d53-7bde310c94a2" />
+$\color{#d4b79d}{\textsf{i'm usually a nice person , but when i'm in a bad mood i can be a bit rude , sorry about that}}$ <img align="right" width="228" height="600" alt="image" src="https://github.com/user-attachments/assets/ec4b767a-1613-4915-8eeb-2ab8b8fced80" />
 
 
 $\color{#d4b79d}{\textsf{I don't want to hurt anyone's feelings if they're sensitive . sometimes i might joke about}}$
