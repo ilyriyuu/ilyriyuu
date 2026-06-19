@@ -2,7 +2,7 @@
 
 ^_^
 
-i really dont feel like making a strawpage or anything like that,, or even decorating my github. this will be just a simple introduction
+i'm not really sure if i should decorate my github since this is really just a simple introduction, but i'll consider it.
 
 you can call me sev, i go by any pronouns, it really doesn't matter what you call me.
 
