@@ -17,11 +17,11 @@ $\color{#d4b79d}{\textsf{i block / hide quite frequently}}$
 
 $\color{#d4b79d}{\textsf{! ! IWC always ! !}}$
 
-.
+$\color{#d4b79d}{\textsf{.}}$
 
 $\color{#d4b79d}{\textsf{i also like keeping most things simple , i decided to decorate my github mainly so it was actually nice to look at}}$
 
-. . . 
+$\color{#d4b79d}{\textsf{. . .}}$
 
 
 $\color{#d4b79d}{\textsf{personally i was never the type to join many fandoms. i would join a few , then lose interest in them fast ,}}$
