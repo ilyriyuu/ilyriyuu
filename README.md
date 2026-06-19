@@ -25,7 +25,8 @@ $\color{#d4b79d}{\textsf{i decided to decorate my github mainly so it was actual
 $\color{#d4b79d}{\textsf{. . .}}$
 
 
-$\color{#d4b79d}{\textsf{personally i was never the type to join many fandoms. i would join a few , then lose interest in them fast ,}}$
+$\color{#d4b79d}{\textsf{personally i was never the type to join many fandoms. i would join a few ,}}$
+$\color{#d4b79d}{\textsf{then lose interest in them fast ,}}$
 $\color{#d4b79d}{\textsf{so here are some fandoms that stuck to me .}}$
 
 $\color{#d4b79d}{\textsf{- Hetalia}}$
