@@ -6,10 +6,9 @@ $\color{#d4b79d}{\textsf{hi , i'm sev .}}$
 
 $\color{#d4b79d}{\textsf{any pronouns - it really doesn't matter what you call me .}}$ 
 
-$\color{#d4b79d}{\textsf{i'm usually a nice person , but when i'm in a bad mood i can be a bit rude , sorry about that}}$ <img align="right" width="228" height="600" alt="image" src="https://github.com/user-attachments/assets/ec4b767a-1613-4915-8eeb-2ab8b8fced80" />
+$\color{#d4b79d}{\textsf{i'm usually a nice person , but when i'm in a bad mood i can be a bit rude , sorry about that}}$
 
-
-$\color{#d4b79d}{\textsf{I don't want to hurt anyone's feelings if they're sensitive . sometimes i might joke about}}$
+$\color{#d4b79d}{\textsf{I don't want to hurt anyone's feelings if they're sensitive . sometimes i might joke about}}$ <img align="right" width="228" height="600" alt="image" src="https://github.com/user-attachments/assets/ec4b767a-1613-4915-8eeb-2ab8b8fced80" />
 $\color{#d4b79d}{\textsf{a sensitive topic and i'm sorry if that offends you or triggers you in any way}}$
 
 $\color{#d4b79d}{\textsf{Feel free to int when i don't have any sort of dni in my name}}$
@@ -23,8 +22,9 @@ $\color{#d4b79d}{\textsf{.}}$
 $\color{#d4b79d}{\textsf{i also like keeping most things simple ,}}$
 $\color{#d4b79d}{\textsf{i decided to decorate my github mainly so it was actually nice to look at}}$
 
-$\color{#d4b79d}{\textsf{. . .}}$
+$\color{#d4b79d}{\textsf{.}}$
 
+$\color{#c2a488}{\textsf{Fandoms - }}$ 
 
 $\color{#d4b79d}{\textsf{personally i was never the type to join many fandoms. i would join a few ,}}$
 $\color{#d4b79d}{\textsf{then lose interest in them fast ,}}$
