@@ -36,7 +36,7 @@ $\color{#d4b79d}{\textsf{- Bungo Stray Dogs}}$
 
 $\color{#d4b79d}{\textsf{- Forsaken}}$
 
-$\color{#d4b79d}{\textsf{- Die Of Death}}$
+$\color{#d4b79d}{\textsf{- Regretevator}}$
 
 $\color{#d4b79d}{\textsf{- Bad Things}}$
 
