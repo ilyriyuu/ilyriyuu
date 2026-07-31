@@ -30,7 +30,7 @@ $\color{#d4b79d}{\textsf{personally i was never the type to join many fandoms. i
 $\color{#d4b79d}{\textsf{then lose interest in them fast ,}}$
 $\color{#d4b79d}{\textsf{so here are some fandoms that stuck to me .}}$
 
-$\color{#d4b79d}{\textsf{- Hetalia}}$
+$\color{#d4b79d}{\textsf{- Hetalia / Yugotalia}}$
 
 $\color{#d4b79d}{\textsf{- Bungo Stray Dogs}}$
 
