@@ -19,8 +19,7 @@ $\color{#d4b79d}{\textsf{! ! IWC always ! !}}$
 
 $\color{#d4b79d}{\textsf{.}}$
 
-$\color{#d4b79d}{\textsf{i also like keeping most things simple ,}}$
-$\color{#d4b79d}{\textsf{i decided to decorate my github mainly so it was actually nice to look at}}$
+$\color{#d4b79d}{\textsf{ ^_^ ,}}$
 
 $\color{#d4b79d}{\textsf{.}}$
 
@@ -30,7 +29,7 @@ $\color{#d4b79d}{\textsf{personally i was never the type to join many fandoms. i
 $\color{#d4b79d}{\textsf{then lose interest in them fast ,}}$
 $\color{#d4b79d}{\textsf{so here are some fandoms that stuck to me .}}$
 
-$\color{#d4b79d}{\textsf{- Hetalia / Yugotalia}}$
+$\color{#d4b79d}{\textsf{- Hetalia / Yugotalia ( main )}}$
 
 $\color{#d4b79d}{\textsf{- Bungo Stray Dogs}}$
 
