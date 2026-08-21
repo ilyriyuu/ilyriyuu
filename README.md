@@ -6,7 +6,7 @@ $\color{#d4b79d}{\textsf{hi , i'm sev .}}$
 
 $\color{#d4b79d}{\textsf{any pronouns - it really doesn't matter what you call me .}}$ 
 
-$\color{#d4b79d}{\textsf{i'm nice most of the time unless i'm in a bad mood . i only put a dni in my name when i'm in a bad mood/not feeling well .}}$
+$\color{#d4b79d}{\textsf{i'm nice most of the time unless i'm in a bad mood . i only put a dni in my name when i'm in not feeling well .}}$
 
 $\color{#d4b79d}{\textsf{I don't want to hurt anyone's feelings if they're sensitive . sometimes i might joke about}}$ <img align="right" width="228" height="600" alt="image" src="https://github.com/user-attachments/assets/ec4b767a-1613-4915-8eeb-2ab8b8fced80" />
 $\color{#d4b79d}{\textsf{a sensitive topic and i'm sorry if that offends you or triggers you in any way}}$
